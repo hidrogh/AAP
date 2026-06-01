@@ -1,0 +1,9 @@
+[[A_Faire]]
+Boite d'objet tkt 
+- A,  Boite noir sobre de 1m > par 25cm - par 30cm | avec un logo de marque écrit en or pur
+- B, disque en caoutchouc a poser sur un humain ou une peluche et qui fais pousser un pénis
+- C, disque en caoutchouc a poser sur un humain ou une peluche et qui fais pousser un vagin
+- D, Dildo qui une fois insérer gonfle et/ou s'allonge pour combler tout l'espace
+- E,
+- F,
+- H, Amalgame
