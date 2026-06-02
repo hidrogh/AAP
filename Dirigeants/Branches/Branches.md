@@ -1,15 +1,15 @@
 [[Dirigeants]][[AAP]]
 
 Branche [[Aegis]] : Armement/Défense/Confinement
-Dirigeant : Kratos
+Dirigeant : **Kratos*
 
 Branche [[Epistème]] : Recherche/Gestion des Tests/Études des AP
-Dirigeant : Asclépios
+Dirigeant : **Asclépios*
 
 Branche [[Psemata]] : Civil/Gestion des connaissances divulgués 
-Dirigeant : Azatoth
+Dirigeant : **Azatoth*
 
 Gestion : Gestion des sites/AP/habilitation 
-Dirigeant : Amon - Ra
+Dirigeant : **Amon - Ra**
 
 
