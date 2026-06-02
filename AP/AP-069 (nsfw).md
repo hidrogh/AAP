@@ -4,6 +4,6 @@ Boite d'objet tkt
 - B, disque en caoutchouc a poser sur un humain ou une peluche et qui fais pousser un pénis
 - C, disque en caoutchouc a poser sur un humain ou une peluche et qui fais pousser un vagin
 - D, Dildo qui une fois insérer gonfle et/ou s'allonge pour combler tout l'espace
-- E,
+- E, Dildo en forme de tentacule capable de bouger et de changer de forme et de taille tout seul
 - F,
 - H, Amalgame
