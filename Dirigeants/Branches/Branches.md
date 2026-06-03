@@ -1,4 +1,4 @@
-[[Dirigeants]][[AAP]]
+[[Dirigeants]] [[AAP]]
 
 Branche [[Aegis]] : Armement/Défense/Confinement
 Dirigeant : **Kratos*
@@ -9,7 +9,7 @@ Dirigeant : **Asclépios*
 Branche [[Psemata]] : Civil/Gestion des connaissances divulgués 
 Dirigeant : **Azatoth*
 
-Gestion : Gestion des sites/AP/habilitation 
+Branche [[Gestion]] : Gestion des sites/AP/habilitation 
 Dirigeant : **Amon - Ra**
 
 
