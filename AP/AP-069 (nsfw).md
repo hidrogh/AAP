@@ -7,4 +7,4 @@ Boite d'objet tkt
 - E, Dildo en forme de tentacule capable de bouger et de changer de forme et de taille tout seul
 - F, Aphrodisiaque infinini
 - H, Lubrifiant qui permet d'annuler la résistance de l'air et rend la glisse infini
-- I,  Amalgame d'organes sexuels humaines
+- I,  Amalgame d'organes reporducteurs humaines
